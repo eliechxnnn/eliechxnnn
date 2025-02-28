@@ -6,4 +6,4 @@ Elie      ⋆˚࿔ she/her         ![](https://i.imgur.com/7w8cCjN.gif)       �
 
 art from:   _venomoffline   from    x
 
-[![eliechxnnn's spotify](https://spotify-github-profile.kittinanx.com/api/view?uid=memvx26gg7l9aijix58icoht0&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=memvx26gg7l9aijix58icoht0&redirect=true)
+[![eliechxnnn's spotifyy](https://spotify-github-profile.kittinanx.com/api/view?uid=memvx26gg7l9aijix58icoht0&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=b8d7ff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=memvx26gg7l9aijix58icoht0&redirect=true)
